@@ -96,3 +96,8 @@ Procedures for handling system errors and downtime.
 *   **Cognitive Fog/Glitch:** Usually indicates a synchronization error or high mental load. Change physical environment, hydrate, and implement a 5-minute screen-free interval.
 *   **Sleep Hygiene:** Maintain a consistent room temperature of 18-20°C and total darkness to maximize REM cycles.
 
+
+
+
+
+https://music.youtube.com/playlist?list=PLOEyXhbvKpTW1hEj7akbULFIcBQgRCYbv&si=xSIvEWRW2yrKuu3g
